@@ -7,6 +7,52 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 02:32
+---
+
+## kianmeli1 — post 87458
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87458_1779058965.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قیمت نفت پس از پست های تهدید حمله به ایران افزایش یافت
+
+( بالا رفتن و پایین آمدن نفت با خبرهای هیجانی ممکن است برای شرط بندی و نوسان گیری و خرید و فروش نفت توسط دولت امریکا باشد
+شاید فردا با خبر دیگری بگوید توافق نزدیک است
+
+
+قبل از باز شدن بازار در کف قیمت میخرند‌ و با خبرهای هیجانی بالا میبرند تا صبح دوشنبه با بالاترین قیمت بفروشند
+
+جنگ نعمت است برای دولت های خارجی).
+https://t.me/kianmeli1
+</div>
+
+## FarsiVOA — post 218022
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ایران در میزگردهای هفتگی شبکه‌های تلویزیونی آمریکا
+@FarsiVOA
+</div>
+
+## BBCPersian — post 281331
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_281331_1779058966.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+در پی واژگون شدن اتوبوس حامل کارکنان مجمتع گاز پارس جنوبی در عسلویه، شش نفر کشته و ۲۰ نفر مجروح شدند.
+
+ابراهیم عباسی، سخنگوی مجتمع گاز پارس جنوبی به ایسنا گفته است این اتوبوس در حال سفر به شهر کرمانشاه بوده است که در جاده عسلویه - سیراف دچار سانحه و واژگون شده است.
+
+https://bbc.in/4dqYKR9
+📷 Irna
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 02:23
 ---
 
