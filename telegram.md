@@ -7,6 +7,32 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 06:02
+---
+
+## FoxNewsTwitter — post 341866
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341866_1779071574.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A World War II-era seaplane makes an emergency landing right on a Phoenix street.
+
+Smoke reportedly started entering the cockpit after the plane's engine made a noise. The video, captured by a camera mounted on the plane's wing, shows the aircraft's descent. All the passengers made it out safely.
+
+An NTSB investigation is now underway.
+</div>
+
+## Persian_Trend_Official — post 14369
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♨️ دوستان عزیز، با توجه به شرایط پیش‌رو، بهتر است از همین حالا برای سناریوهای اضطراری آماده باشیم. آمادگی یعنی آرامش بیشتر و آسیب کمتر برای خودمان و خانواده‌مان. 🧭 ⚠️ چند مورد مهم را جدی بگیرید: • برای دست‌کم ۱ ماه، آذوقه‌ی غذایی فاسد نشدنی و آب آشامیدنی…
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 05:52
 ---
 
