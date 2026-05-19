@@ -7,6 +7,40 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 05:12
+---
+
+## pm_afshaa — post 91012
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91012_1779154937.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴معاون سخنگوی کاخ سفید:
+ترامپ خط قرمز ما رو تو این مذاکرات واضح بیان کرد؛ ایران باید یک بار برای همیشه از جاه‌طلبی‌های هسته‌ایش دست بکشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91011
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91011_1779154938.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فاکس نیوز به نقل از ترامپ:
+ایران میخواد جنگ زود تموم بشه و اصلا نمیتونه سلاح هسته‌ای به دست بیاره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 05:02
 ---
 
