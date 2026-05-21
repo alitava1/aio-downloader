@@ -7,6 +7,35 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/01 03:03
+---
+
+## VahidOOnLine — post 241416
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241416_1779406418.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️شبکه العربیه پنجشنبه‌شب ۳۱ اردیبهشت گزارش‌های منتشرشده در برخی رسانه‌های جمهوری اسلامی درباره دستیابی به توافق در مذاکرات ایران و آمریکا را تکذیب و آن‌ها را «جعلی و نادرست» توصیف کرد.
+العربیه اعلام کرد برخی رسانه‌های جمهوری اسلامی اخباری را بدون بررسی صحت آن یا انتشارش در پلتفرم‌های رسمی این شبکه، به العربیه نسبت داده‌اند و این اقدام را «غیرحرفه‌ای» توصیف کرد. این شبکه تاکید کرد هیچ گزارشی درباره دستیابی به توافق هسته‌ای یا حل‌وفصل اختلافات میان واشنگتن و تهران منتشر نکرده است.
+این واکنش در حالی مطرح می‌شود که مذاکرات هسته‌ای آمریکا و ایران با میانجی‌گری پاکستان در هفته‌های اخیر وارد مرحله حساسی شده و همزمان گزارش‌های ضدونقیضی درباره روند مذاکرات منتشر شده است. در روزهای اخیر، برخی رسانه‌ها از نزدیک شدن دو طرف به یک تفاهم احتمالی خبر داده بودند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342082
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342082_1779406418.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: SpaceX launches its massive, next-generation Starship V3 rocket from Starbase, Texas https://twitter.com/i/broadcasts/1qJVmQdOpXDGB
+</div>
+
+---
 📅 بروزرسانی: 1405/03/01 02:53
 ---
 
