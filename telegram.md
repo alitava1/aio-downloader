@@ -7,6 +7,90 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 10:12
+---
+
+## VahidOOnLine — post 241279
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241279_1779345745.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام با انتشار تصویری نوشت که یک فروند بمب‌افکن «بی-۱بی لنسر» نیروی هوایی آمریکا در جریان یک پرواز آموزشی بر فراز آب‌های منطقه‌ای در خاورمیانه، از یک هواپیمای سوخت‌رسان «کی‌سی-۱۳۵ استراتوتنکر» سوخت‌گیری هوایی کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11810
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری نور: سخنگوی وزارت خارجه ایران، بقائی، گزارش داد که پاسخ ایالات متحده به طرح ۱۴ نقطه‌ای خود را دریافت کرده‌اند و در حال بررسی آن هستند.
+«بر اساس همان متن اولیه ۱۴ نقطه‌ای از ایران، تبادل پیام‌ها چندین بار انجام شده است و ما دیدگاه‌های طرف آمریکایی را دریافت کرده‌ایم و در حال حاضر در حال بررسی آن‌ها هستیم.»
+@withyashar
+</div>
+
+## WithYashar — post 11809
+
+<div align="center">
+  <img src="telegram/content/WithYashar_11809_1779345745.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام با انتشار این عکس تایید کرد : یک بمب‌افکن B-1B لنسر متعلق به نیروی هوایی آمریکا، در جریان یک پرواز آموزشی بر فراز آب‌های منطقه‌ای خاورمیانه، از یک هواپیمای سوخت‌رسان KC-135 استراتوتنکر سوخت‌گیری کرد.
+@withyashar
+در این ویدیو اتاق جنگ چند روز پیشاین هواپیما رو رهگیری کردیم …
+
+https://www.instagram.com/reel/DYQCr39RJ4i/?igsh=MThycjJiYWZmbnJ3dA==
+</div>
+
+## IranIntlTV — post 338197
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338197_1779345746.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲۱ ماه می، روز جهانی تنوع فرهنگی است. بسیاری از خانواده‌های مهاجر افغان نگران‌اند فرزندانشان به‌تدریج از زبان و هویت فرهنگی خود فاصله بگیرند. در این میان، شماری از فعالان فرهنگی تلاش می‌کنند پیوند نسل تازه را با فرهنگ افغانستان حفظ کنند.
+
+نبی قانع‌زاده، آموزگار و فعال فرهنگی در فنلاند، یکی از همین افراد است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 338196
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338196_1779345748.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام با انتشار تصویری نوشت که یک فروند بمب‌افکن «بی-۱بی لنسر» نیروی هوایی آمریکا در جریان یک پرواز آموزشی بر فراز آب‌های منطقه‌ای در خاورمیانه، از یک هواپیمای سوخت‌رسان «کی‌سی-۱۳۵ استراتوتنکر» سوخت‌گیری هوایی کرد.
+https://iranintl.com/202605216479
+</div>
+
+## Dirty_Kids — post 389856
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389856_1779345749.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من هرروز صبح:
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 121471
+
+<div align="center">
+  <a href="telegram/content/alonews_121471_1779345750.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈احتمال شنیده شده صدای انفجار در شهر ابریشم و جنوب اصفهان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 10:02
 ---
 
