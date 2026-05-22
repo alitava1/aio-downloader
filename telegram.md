@@ -7,6 +7,55 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/01 05:12
+---
+
+## FoxNewsTwitter — post 342084
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342084_1779414158.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A former U.S. attorney who once prosecuted federal crimes in Texas is now facing felony charges herself.
+
+Authorities say Jennifer Lowery allegedly left the scene of a Houston crash that injured another driver despite remaining nearby for several minutes after the collision.
+
+Investigators say CCTV footage appears to show Lowery driving away without checking on the injured person or rendering aid.
+
+The former U.S. attorney for the Southern District of Texas has now been charged with felony failure to stop and render aid.
+</div>
+
+## FoxNewsTwitter — post 342083
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342083_1779414159.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"Completely barbaric."
+
+Former Navy SEAL Rob O'Neill, the man who is credited with killing Osama bin Laden, ripped Graham Platner for the Senate hopeful's controversial post trashing a soldier who was wounded in a clash with Taliban fighters.
+
+In a 2019 Reddit post, Platner said of the soldier: "Dumb motherf----- didn't deserve to live. At least his stupidity and fat a-- wheezing are available for all future infantrymen to witness and hold in contempt. Poor marksmanship on the Taliban's part is the only reason this mouthbreather made it home, he managed to make every possible s--- decision possible when it comes to small unit combat."
+</div>
+
+## FarsiVOA — post 218342
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺عملیات تجارت دریایی بریتانیا: تهدیدها در تنگه هرمز و آب‌های خاورمیانه همچنان «بحرانی» است
+
+▪️آژانس «عملیات تجارت دریایی بریتانیا» روز پنجشنبه ۳۱ اردیبهشت گفت که تهدیدها در تنگه هرمز و خلیج فارس و آب‌های خاورمیانه همچنان در سطح «بحرانی» است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8152728.html
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/01 05:02
 ---
 
